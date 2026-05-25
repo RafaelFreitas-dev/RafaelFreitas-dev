@@ -118,4 +118,4 @@ Desenvolvedor Full-Stack em desenvolvimento focado na criação de interfaces di
 - **WhtasApp:** [SÓ RESPONDO MENSAGENS!!](+55(11)96556-2394)
 -------------------------------------------------------------------------------
 
-<p align="center">(<i>RAFAEL FREITAS () => {" "}!</i>) 🚀</p>
+<p align="center"><i>function() => {" RAFAEL FREITAS - 2026 "}</i> 🚀</p>
